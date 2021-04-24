@@ -1,0 +1,2 @@
+# learning
+kişisel websitesi
